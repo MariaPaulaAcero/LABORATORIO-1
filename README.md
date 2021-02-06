@@ -1,1 +1,3 @@
-# LABORATORIO-1
+# Maria Paula Acero Rengifo 
+Natalia Mayorga 
+Maria Juliana Giraldo
