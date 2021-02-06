@@ -1,3 +1,1 @@
-# Maria Paula Acero Rengifo 
-Natalia Mayorga 
-Maria Juliana Giraldo
+# Maria Paula Acero Rengifgo #Natalia Mayorga  #Maria Juliana Giraldo 
